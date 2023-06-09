@@ -1,1 +1,1 @@
-# LearnAccumulation
+# 仅作为个人经验分享, 有误请指出
